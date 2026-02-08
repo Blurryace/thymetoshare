@@ -1,4 +1,4 @@
-# thymetoshare
+# THYMETOSHARE
 
 Tired of digging through endless recipe pages only to find the same dull dishes? Welcome to Thyme to Share — a community-powered hub packed with fresh culinary ideas, from savory mains to irresistible desserts. Whether you’re a seasoned home cook or just starting out in the kitchen, there’s always something here to spark your appetite.
 
