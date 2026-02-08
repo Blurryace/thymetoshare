@@ -6,11 +6,7 @@ Why stick to boring meals when you can cook with creativity? Join Thyme to Share
 
 Developers:
 Garduce, John Matthew
-
 Lee, Frank Gwyn 
-
 Paz, Jeyve Mark
-
 Rabang, Ana Cristina
-
 Santos, Samuel Ace 
